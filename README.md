@@ -1,2 +1,2 @@
 # tools
-My documents aand tools on stuff Iearn
+My documents and tools on stuff Iearn
